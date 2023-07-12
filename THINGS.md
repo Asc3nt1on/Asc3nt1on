@@ -1,0 +1,1 @@
+hi, I am Asc3nt1on, if you are reading this, Thank you for reading the things page on my GitHub, I aprreciate it! If you want to contact me in any way I am probably reachable on Discord for Asc3nt1on. I like to code and sometimes draw, 
